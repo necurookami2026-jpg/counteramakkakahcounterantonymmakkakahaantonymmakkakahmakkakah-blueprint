@@ -1,0 +1,2 @@
+# counteramakkakahcounterantonymmakkakahaantonymmakkakahmakkakah-blueprint
+an citizenryagent blueprint: counteramakkakahcounterantonymmakkakahaantonymmakkakahmakkakah blueprint 
